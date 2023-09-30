@@ -1,3 +1,4 @@
 url: 'https://www.andydixon.com'
 name: 'Andy Dixon'
 description: 'Rust, Go, PHP developer, Linux Advocate and Photographer'
+theme: jekyll-theme-minimal
