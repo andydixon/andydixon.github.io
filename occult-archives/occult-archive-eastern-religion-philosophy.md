@@ -1,0 +1,48 @@
+---
+id: 41
+title: 'Eastern Religion &amp; Philosophy'
+date: '2023-03-17T13:39:40+00:00'
+layout: page
+guid: 'http://new.andydixon.com/?page_id=41'
+---
+
+- [2015.195695.Hindu-Pantheon](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/2015.195695.Hindu-Pantheon.pdf)
+- [2015.196082.Vedic-Mythology-2](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/2015.196082.Vedic-Mythology-2.pdf)
+- [2015.196082.Vedic-Mythology](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/2015.196082.Vedic-Mythology.pdf)
+- [2015.24423.Indian-Mythology](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/2015.24423.Indian-Mythology.pdf)
+- [2015.274311.The-Origins](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/2015.274311.The-Origins.pdf)
+- [2015.283854.The-Vishnu](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/2015.283854.The-Vishnu.pdf)
+- [2015.345057.A-System](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/2015.345057.A-System.pdf)
+- [2015.40087.Hindu-Pantheon](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/2015.40087.Hindu-Pantheon.pdf)
+- [2015.40187.Mythology-Of-The-Hindus](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/2015.40187.Mythology-Of-The-Hindus.pdf)
+- [4](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/4.pdf)
+- [BhagavadGita](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/BhagavadGita.pdf)
+- [Bhagvad\_Gita](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Bhagvad_Gita.PDF)
+- [Book of Power (Middle Eastern magical tradition)](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Book%20of%20Power%20%28Middle%20Eastern%20magical%20tradition%29.pdf)
+- [Book-of-Hindu-Mythology](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Book-of-Hindu-Mythology.pdf)
+- [BrahmaSutra](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/BrahmaSutra.pdf)
+- [Confucian\_Canon](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Confucian_Canon.PDF)
+- [Dhammapada](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Dhammapada.PDF)
+- [Epic Hindu Mythology by Washburn Hopkins](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Epic%20Hindu%20Mythology%20by%20Washburn%20Hopkins.pdf)
+- [FoundationsofTaoistPractice](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/FoundationsofTaoistPractice.pdf)
+- [Greatness Of Saturn](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Greatness%20Of%20Saturn.pdf)
+- [Hinduism -&gt; (ebook) wealth consciousness, babaji](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Hinduism/%28ebook%29%20wealth%20consciousness%2C%20babaji.pdf)
+- [Hinduism -&gt; BhagavadGita](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Hinduism/BhagavadGita.pdf)
+- [Hinduism -&gt; Dr. L. W. de Laurence – Hindu Occult Chambers](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Hinduism/Dr.%20L.%20W.%20de%20Laurence%20-%20Hindu%20Occult%20Chambers.pdf)
+- [Hinduism -&gt; Govinda Das Aghori – Yantras – Heavenly Geometrices](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Hinduism/Govinda%20Das%20Aghori%20-%20Yantras%20-%20Heavenly%20Geometrices.pdf)
+- [Journal of Indian Philosophy (vol. 11, No. 3)](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Journal%20of%20Indian%20Philosophy%20%28vol.%2011%2C%20No.%203%29.pdf)
+- [Tao\_te\_Ching](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Tao_te_Ching.PDF)
+- [Taoism -&gt; FoundationsofTaoistPractice](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Taoism/FoundationsofTaoistPractice.pdf)
+- [Taoism -&gt; Richard Wilhelm – I-Ching (O Livro das Mutações) Prefacio de Carl Gustav Jung](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Taoism/Richard%20Wilhelm%20-%20I-Ching%20%28O%20Livro%20das%20Muta%C3%A7%C3%B5es%29%20Prefacio%20de%20Carl%20Gustav%20Jung.pdf)
+- [Taoism -&gt; Tao\_te\_Ching](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Taoism/Tao_te_Ching.PDF)
+- [Taoism -&gt; Tzu – Chinese Taoist Sorcery](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Taoism/Tzu%20-%20Chinese%20Taoist%20Sorcery.pdf)
+- [The\_Diamond\_Sutra](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/The_Diamond_Sutra.pdf)
+- [Yoga. Tantra -&gt; Multiple Authors – The Yoga Sutras of Pantanjali – Seven Translations Compared \[1 ebook – pdf\]](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Yoga.%20Tantra/Multiple%20Authors%20-%20The%20Yoga%20Sutras%20of%20Pantanjali%20%E2%80%93%20Seven%20Translations%20Compared%20%5B1%20ebook%20-%20pdf%5D.pdf)
+- [Yoga. Tantra -&gt; RajaYoga by Swami Vivekananda](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/Yoga.%20Tantra/RajaYoga%20by%20Swami%20Vivekananda.pdf)
+- [hindu\_mythology](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/hindu_mythology.pdf)
+- [hinduismbk](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/hinduismbk.pdf)
+- [hindumythologyve00inwilk](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/hindumythologyve00inwilk.pdf)
+- [ightasia2](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/ightasia2.pdf)
+- [lordshiva](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/lordshiva.pdf)
+- [tibetan -&gt; Bon Po Hidden Treasures](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/tibetan/Bon%20Po%20Hidden%20Treasures.pdf)
+- [tibetan -&gt; The Tibetan Book Of The Dead](https://occult.g8x2.ldn.idrivee2-23.com/Eastern%20Religion%20&%20Philosophy/tibetan/The%20Tibetan%20Book%20Of%20The%20Dead.pdf)

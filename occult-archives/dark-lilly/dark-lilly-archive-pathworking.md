@@ -1,0 +1,10 @@
+---
+id: 120
+title: Pathworking
+date: '2023-03-17T13:39:42+00:00'
+author: Andy
+layout: page
+guid: 'http://new.andydixon.com/?page_id=120'
+---
+
+Pathworking The standard occult teaching on pathworking focuses upon symbols and images. All well and good if that is the level that you are at. But there is a less well-known focus for pathworkings, a method that is perhaps not as grandiose as communicating with ‘deities’. Once you have begun to know yourself and have an idea of how you would like to behave (in accordance with your spiritual beliefs) then you are in a position to utilise pathworking as a method of self-change. The method itself is both simple and practical; visualise yourself in a situation where you currently behave in a manner that you dislike (i.e. taking a stance). Then visualise the same situation but alter your behaviour in accordance with your desires. For example, when driving my car to work, I am usually annoyed at other drivers and verbally abuse them or make rude gestures. To my subconscious, the other drivers are essentially inconsiderate of myself (and other drivers). This is a stance. In order to alter this subconscious behaviour, I visualise myself driving to work, focusing on the behaviour of other drivers that my subconscious particularly dislikes (such as driving too close or not indicating that they are about to overtake). Then I imagine my behaviour changing from that of a reactionary puppet to that of a calm and self-possessed person, aware of the other drivers, but without judging their behaviour or reacting negatively towards it. The aim is to tread and retread a path that creates or assists in changes in ones behaviour. Speaking in relation to the teachings of Dark Lily, pathworking is therefore entirely practical and may assist both in the decrease of stances and the enhancement of self-awareness.

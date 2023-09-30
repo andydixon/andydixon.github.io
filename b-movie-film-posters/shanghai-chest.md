@@ -1,0 +1,9 @@
+---
+id: 2989
+title: 'Shanghai Chest'
+date: '2023-03-17T13:45:35+00:00'
+layout: page
+guid: 'http://new.andydixon.com/?page_id=2989'
+---
+
+![Shanghai Chest](https://i0.wp.com/assets.g8x2.ldn.idrivee2-23.com/posters/Shanghai%20Chest%2001.jpg?w=1200&ssl=1 "Shanghai Chest")

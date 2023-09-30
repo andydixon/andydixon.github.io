@@ -1,0 +1,24 @@
+---
+id: 113
+title: Censorship
+date: '2023-03-17T13:39:42+00:00'
+author: Andy
+layout: page
+guid: 'http://new.andydixon.com/?page_id=113'
+---
+
+CENSORSHIP
+
+Those of us who enjoy a sex life other than 1.4 times per week in the missionary position quite understandably assume that censorship in the arena of sex and human relations is an attempt by the “moral majority” to impose an “acceptable” sexual lifestyle upon us. (Sometimes known as acceptable behaviour.) Unfortunately it’s not that simple. Censorship in the U.K. has absolutely nothing to do with sex whatsoever. Censorship is all about power, specifically state power.
+
+When campaigners ask for repressive and arcane laws concerned with sex to be modified and removed, they are in reality asking the government of the day to relinquish power over its people in specific areas, to step back from people’s ordinary lives. The problem is, the first unwritten rule of power states that: When one has achieved power, one never surrenders any of it under any circumstances. Similarly, when in power one can never be wrong, therefore never admit to being wrong. An example of this kind of abuse of power is the Catholic Church and Galileo. We all know the story about his telescope and his theory of the Earth orbiting the Sun; it very nearly got him tortured to death in the best Christian manner.
+
+The stance of the church was worse than ignorant. They were prepared to maim and torture and kill in defence of their power (and have done so on thousands of occasions). Galileo’s theories were a direct challenge to the authority of Rome. They attacked the very foundations upon which the Church was built. What isn’t quite so well known is that it took the Catholic Church over three hundred years to forgive/absolve Galileo. Even to this day the Church has never admitted that it was wrong. That is how absolute power works.
+
+Absolute power is what any government wields over its people, democracy is not even an issue because there is nothing democratic about governments that subscribe to the same rules of power. The policies of government are also irrelevant to 99% of the population because, for the most part, policy-making is nothing more than cosmetic. Increasingly over the last fifty years, the UK government has been less and less effective on the world stage. Only a few years ago, one man, a currency speculatory, ripped the fiscal policy of the then conservative government to shreds and left Norman Lamont with no option but to resign. This one man, George Spiros, forced the government to abandon the ill thought out Exchange Rate Mechanism and exposed our then chancellor for the ineffective amateur that he was. The central banks of several EC partners, along with the Bank of England, frantically bought Sterling in an attempt to avert a crisis but to no avail and the ERM slid into history along with the rest of the cock-ups.
+
+In reality it is outside events which dictate British policy on the world stage. In other words the government can not act but only react. In matters outside the UK, the government does not call the shots. It is only at home that the government (state) can be truly effective and then only for the very worst of reasons. Namely, the population, (you and I) have no defence, no one is going to intercede on our behalf. Forget elections and democracy; all political parties, as far as power is concerned, are singing from the same hymn-sheet.
+
+The government position on censorship is without doubt both ridiculous and unhealthy. The government, of course, knows this but is obliged to cling to the fantasy of manufactured and therefore artificial decency. Does anyone really believe that just being a politician makes one emotionally or intellectually qualified to dictate to another adult what is and what is not acceptable behaviour? The whole concept is a sad and sick joke. Politicians, the police, the judiciary, clergy, doctors etc. are not special people. They are just ordinary people, the same as us, who have chosen or drifted into the above jobs. The six hundred and fifty-odd MPs represent no more than a microcosm of the UK population. In the House of Commons (and Lords) you will find gays, bi-sexuals, drunks, wife-beaters, drug users, in fact every kind of social and sexual behaviour that you would reasonably expect to find in any Six hundred and fifty-odd sample of the UK populace. What you will not find, sadly, is any honesty. Living in a free society means that one will see and hear things that one either does not like or does not agree with. Unfortunately we do not live in a free society.
+
+Taken from The Lady O Society Newsletter #18, April 1998.

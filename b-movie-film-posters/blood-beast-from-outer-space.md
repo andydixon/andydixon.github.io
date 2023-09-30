@@ -1,0 +1,9 @@
+---
+id: 574
+title: 'Blood Beast From Outer Space'
+date: '2023-03-17T13:45:12+00:00'
+layout: page
+guid: 'http://new.andydixon.com/?page_id=574'
+---
+
+![Blood Beast From Outer Space](https://i0.wp.com/assets.g8x2.ldn.idrivee2-23.com/posters/Blood%20Beast%20From%20Outer%20Space%2001.jpg?w=1200&ssl=1 "Blood Beast From Outer Space")
